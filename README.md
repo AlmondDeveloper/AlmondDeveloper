@@ -1,1 +1,1 @@
-<img width="2167" height="864" alt="ALMOND (2)" src="https://github.com/user-attachments/assets/5a095d2b-3500-4f3f-b20d-f0865f2f45ce" />
+<img width="3300" height="1410" alt="ALMOND (3)" src="https://github.com/user-attachments/assets/eba3cf30-03d5-4d1b-bcfc-524ef61d164a" />
